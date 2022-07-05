@@ -8,7 +8,6 @@ me considero una persona curiosa en este inmenso mundo de tecnologías maravillo
 
 si quieres saber mas sobre mi, 
 Contáctame: 
-WhatsApp: 3113708249
 Email: jsarabialugo@gmail.com
 </p>
 <h3 align="left">Contáctame:</h3>
